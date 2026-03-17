@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working on my Linkedin profile <br>I'm a computer science major .<br>willing to learn. willing to explore.<br>
+I'm currently working on my Linkedin profile <br>I'm a computer science major.<br>willing to learn, willing to explore.<br>
 
 
 ## 🌐 Socials:
